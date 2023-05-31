@@ -6,4 +6,4 @@
 2022
 
 ### Prima esecuzione
-From Silence, Chiesa di Sant'Agostino, Siena, 31 luglio 2022
+Chigiana International Festival 2022 [From Silence], Chiesa di Sant'Agostino, Siena, 31 luglio 2022
